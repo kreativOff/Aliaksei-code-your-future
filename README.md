@@ -1,1 +1,1 @@
-https://kreativoff.github.io/Aliaksei-code-your-future/
+https://kreativoff.github.io/code-your-future/
